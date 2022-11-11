@@ -55,7 +55,6 @@
 
 - 📫 How to reach me **12alanmartinez@gmail.com**
 
-- 📄 Know about my experiences [:briefcase:](file:///C:/Users/alanm/Downloads/Alan_Martinez_Resume_10-11-2022-14-40-41.pdf)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
